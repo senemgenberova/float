@@ -1,0 +1,1 @@
+esas kodlarima bax :D
